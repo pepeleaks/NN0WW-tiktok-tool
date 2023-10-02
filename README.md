@@ -1,1 +1,1 @@
-# NN0WW-tiktok-tool
+# @NN0WW FUCK YOUR TOOL !!! ( on telegram )
